@@ -1,13 +1,21 @@
-# 5. Rodina, rozvod a střídavá péče
+# 5. Když se rodina rozpadá
 
-**O čem kapitola je:** Jak rozpad rodiny a hádky dopadají na dítě.
+**O čem kapitola je:** Hádky, rozvod, dva domovy. A příběh Žanety.
 
-## Co v kapitole bude
+## Témata k povídání
 
 - Samoživitelky
 - Rozvod a hádky
 - Střídavá péče
 - Příběh Žanety: nedostupný otec
+
+## Jak bude kapitola plynout
+
+1. **Příběh:** začneme dítětem a rodinou, ne diagnózou.
+2. **Povídání:** co se v dítěti děje, lidsky a bez odborných slov.
+3. **Co můžete udělat doma**
+4. **Kdy je čas jít za odborníkem**
+5. **Co říct dítěti**
 
 ## Text
 

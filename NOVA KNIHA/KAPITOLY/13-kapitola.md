@@ -1,8 +1,8 @@
-# 13. Neklidné a roztěkané dítě (ADHD)
+# 13. Když dítě nevydrží v klidu
 
-**O čem kapitola je:** Dítě, které nevydrží sedět, ruší, zapomíná.
+**O čem kapitola je:** Neposedné, zapomnětlivé, pořád „v trapu“. (Lékaři tomu říkají ADHD.)
 
-## Co v kapitole bude
+## Témata k povídání
 
 - Co je ADHD
 - Kluci a holky
@@ -11,6 +11,14 @@
 - Léky
 - Škola a kamarádi
 - ADHD a dospělost
+
+## Jak bude kapitola plynout
+
+1. **Příběh:** začneme dítětem a rodinou, ne diagnózou.
+2. **Povídání:** co se v dítěti děje, lidsky a bez odborných slov.
+3. **Co můžete udělat doma**
+4. **Kdy je čas jít za odborníkem**
+5. **Co říct dítěti**
 
 ## Text
 

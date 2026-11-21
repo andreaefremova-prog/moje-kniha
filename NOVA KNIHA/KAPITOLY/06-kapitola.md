@@ -1,8 +1,8 @@
-# 6. Školka a škola
+# 6. Když dítě nechce do školky nebo do školy
 
-**O čem kapitola je:** Nástup do školky, odklady, odmítání školy, inkluze.
+**O čem kapitola je:** Bolí ho bříško, pláče u dveří, odmítá jít. Co za tím bývá.
 
-## Co v kapitole bude
+## Témata k povídání
 
 - Kdy do školky
 - Dítě se nechce odloučit od mámy
@@ -10,6 +10,14 @@
 - Dítě nechce do školy
 - Inkluze a speciální škola
 - Čtení a pohádky
+
+## Jak bude kapitola plynout
+
+1. **Příběh:** začneme dítětem a rodinou, ne diagnózou.
+2. **Povídání:** co se v dítěti děje, lidsky a bez odborných slov.
+3. **Co můžete udělat doma**
+4. **Kdy je čas jít za odborníkem**
+5. **Co říct dítěti**
 
 ## Text
 

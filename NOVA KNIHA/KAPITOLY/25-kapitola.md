@@ -1,12 +1,20 @@
-# 25. Potíže s učením a opoždění vývoje
+# 25. Když se učení nedaří
 
-**O čem kapitola je:** Dyslexie, dysgrafie, dyskalkulie, opožděný vývoj.
+**O čem kapitola je:** Písmenka tančí, čísla nedávají smysl. A pomalejší vývoj.
 
-## Co v kapitole bude
+## Témata k povídání
 
 - Jak potíže poznat
 - Vyšetření v poradně
 - Podpora ve škole
+
+## Jak bude kapitola plynout
+
+1. **Příběh:** začneme dítětem a rodinou, ne diagnózou.
+2. **Povídání:** co se v dítěti děje, lidsky a bez odborných slov.
+3. **Co můžete udělat doma**
+4. **Kdy je čas jít za odborníkem**
+5. **Co říct dítěti**
 
 ## Text
 

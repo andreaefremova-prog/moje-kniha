@@ -1,8 +1,8 @@
-# 3. Za kým jít a co čekat
+# 3. Když se rozhodnete hledat pomoc
 
-**O čem kapitola je:** Psycholog, psychiatr, psychoterapeut, pediatr. Kdo co dělá a jak to v ordinaci chodí.
+**O čem kapitola je:** Za kým jít, co vás v ordinaci čeká a proč to není ostuda.
 
-## Co v kapitole bude
+## Témata k povídání
 
 - Rozdíl mezi psychologem, psychiatrem a psychoterapeutem
 - Potřebuji žádanku od pediatra?
@@ -10,6 +10,14 @@
 - Když se rodiče neshodnou
 - Stigma
 - Přechod do dospělé psychiatrie
+
+## Jak bude kapitola plynout
+
+1. **Příběh:** začneme dítětem a rodinou, ne diagnózou.
+2. **Povídání:** co se v dítěti děje, lidsky a bez odborných slov.
+3. **Co můžete udělat doma**
+4. **Kdy je čas jít za odborníkem**
+5. **Co říct dítěti**
 
 ## Text
 

@@ -1,12 +1,20 @@
-# 23. Sexualita a dospívání
+# 23. Jak s dětmi mluvit o sexu
 
-**O čem kapitola je:** Jak a kdy mluvit s dětmi o sexu. Porno.
+**O čem kapitola je:** Kdy začít, co říct, a co s pornem.
 
-## Co v kapitole bude
+## Témata k povídání
 
 - Sexuální výchova podle věku
 - Porno a děti
 - Dnešní dospívající a sex
+
+## Jak bude kapitola plynout
+
+1. **Příběh:** začneme dítětem a rodinou, ne diagnózou.
+2. **Povídání:** co se v dítěti děje, lidsky a bez odborných slov.
+3. **Co můžete udělat doma**
+4. **Kdy je čas jít za odborníkem**
+5. **Co říct dítěti**
 
 ## Text
 

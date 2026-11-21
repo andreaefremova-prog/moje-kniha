@@ -1,8 +1,8 @@
-# 14. Autismus
+# 14. Když dítě vnímá svět jinak
 
-**O čem kapitola je:** Dítě, které vnímá svět jinak.
+**O čem kapitola je:** Jiný kontakt, jiná řeč, potřeba stejnosti. (Lékaři tomu říkají autismus.)
 
-## Co v kapitole bude
+## Témata k povídání
 
 - Je to porucha?
 - Spektrum a Aspergerův syndrom
@@ -11,6 +11,14 @@
 - Holky a kluci
 - Očkování a paracetamol: mýty
 - Jak dítěti pomoci
+
+## Jak bude kapitola plynout
+
+1. **Příběh:** začneme dítětem a rodinou, ne diagnózou.
+2. **Povídání:** co se v dítěti děje, lidsky a bez odborných slov.
+3. **Co můžete udělat doma**
+4. **Kdy je čas jít za odborníkem**
+5. **Co říct dítěti**
 
 ## Text
 

@@ -1,14 +1,22 @@
-# 27. Léky v dětské psychiatrii
+# 27. Prášky ano, nebo ne?
 
 **O čem kapitola je:** Čeho se rodiče bojí a co je pravda.
 
-## Co v kapitole bude
+## Témata k povídání
 
 - Antidepresiva
 - Benzodiazepiny (Rivotril)
 - Jsou léky návykové?
 - Rodiče, kteří léky odmítají
 - Jak se pozná, že lék zabral
+
+## Jak bude kapitola plynout
+
+1. **Příběh:** začneme dítětem a rodinou, ne diagnózou.
+2. **Povídání:** co se v dítěti děje, lidsky a bez odborných slov.
+3. **Co můžete udělat doma**
+4. **Kdy je čas jít za odborníkem**
+5. **Co říct dítěti**
 
 ## Text
 

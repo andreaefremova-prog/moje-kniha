@@ -1,8 +1,8 @@
-# 4. Výchova a role rodičů
+# 4. Co dítě od nás opravdu potřebuje
 
-**O čem kapitola je:** Co dítě opravdu potřebuje: bezpečí, vztah, hranice.
+**O čem kapitola je:** Bezpečí, vztah a hranice. Bez dokonalých rodičů.
 
-## Co v kapitole bude
+## Témata k povídání
 
 - Matka a první roky
 - Jesle, babička, au-pair
@@ -11,6 +11,14 @@
 - Emoci ano, chování ne
 - Tělesné tresty
 - Kolik času s dítětem
+
+## Jak bude kapitola plynout
+
+1. **Příběh:** začneme dítětem a rodinou, ne diagnózou.
+2. **Povídání:** co se v dítěti děje, lidsky a bez odborných slov.
+3. **Co můžete udělat doma**
+4. **Kdy je čas jít za odborníkem**
+5. **Co říct dítěti**
 
 ## Text
 

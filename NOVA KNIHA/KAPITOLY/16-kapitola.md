@@ -1,12 +1,20 @@
-# 16. Nutkavé myšlenky a rituály (OCD)
+# 16. Když dítě musí věci dělat pořád dokola
 
-**O čem kapitola je:** Když dítě musí věci dělat pořád dokola.
+**O čem kapitola je:** Mytí rukou, kontrolování, počítání. (Lékaři tomu říkají OCD.)
 
-## Co v kapitole bude
+## Témata k povídání
 
 - Jak OCD vypadá
 - Varianty
 - Léčba
+
+## Jak bude kapitola plynout
+
+1. **Příběh:** začneme dítětem a rodinou, ne diagnózou.
+2. **Povídání:** co se v dítěti děje, lidsky a bez odborných slov.
+3. **Co můžete udělat doma**
+4. **Kdy je čas jít za odborníkem**
+5. **Co říct dítěti**
 
 ## Text
 

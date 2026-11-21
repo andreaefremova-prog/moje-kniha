@@ -1,12 +1,20 @@
-# 26. Závislosti: alkohol, drogy, energetické nápoje
+# 26. Když dítě něčemu propadne
 
-**O čem kapitola je:** Látkové i nelátkové závislosti.
+**O čem kapitola je:** Energetické nápoje, cigarety, alkohol, drogy.
 
-## Co v kapitole bude
+## Témata k povídání
 
 - Energetické nápoje
 - Závislost u malých dětí
 - Kdo závislosti léčí
+
+## Jak bude kapitola plynout
+
+1. **Příběh:** začneme dítětem a rodinou, ne diagnózou.
+2. **Povídání:** co se v dítěti děje, lidsky a bez odborných slov.
+3. **Co můžete udělat doma**
+4. **Kdy je čas jít za odborníkem**
+5. **Co říct dítěti**
 
 ## Text
 

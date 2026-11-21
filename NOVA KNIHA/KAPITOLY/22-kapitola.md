@@ -1,13 +1,21 @@
-# 22. Pohlaví a gender
+# 22. Když dítě řekne: Už nejsem holka
 
-**O čem kapitola je:** Když dítě řekne: „Už nejsem holka, ale kluk.“
+**O čem kapitola je:** Pohlaví, tělo a hledání sebe sama.
 
-## Co v kapitole bude
+## Témata k povídání
 
 - Genderová dysforie
 - Jak se diagnostikuje
 - Jak má rodič reagovat
 - Blokátory puberty a tranzice
+
+## Jak bude kapitola plynout
+
+1. **Příběh:** začneme dítětem a rodinou, ne diagnózou.
+2. **Povídání:** co se v dítěti děje, lidsky a bez odborných slov.
+3. **Co můžete udělat doma**
+4. **Kdy je čas jít za odborníkem**
+5. **Co říct dítěti**
 
 ## Text
 

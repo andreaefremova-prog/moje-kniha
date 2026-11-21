@@ -1,12 +1,20 @@
-# 31. Závěr: Co dětem přeji
+# 31. Na závěr: povídejte si
 
-**O čem kapitola je:** Světlo na konci tunelu.
+**O čem kapitola je:** Obyčejné povídání jako nejstarší terapie na světě.
 
-## Co v kapitole bude
+## Témata k povídání
 
 - Obyčejné povídání
 - Dětství, které může být dětstvím
 - Fungující rodina
+
+## Jak bude kapitola plynout
+
+1. **Příběh:** začneme dítětem a rodinou, ne diagnózou.
+2. **Povídání:** co se v dítěti děje, lidsky a bez odborných slov.
+3. **Co můžete udělat doma**
+4. **Kdy je čas jít za odborníkem**
+5. **Co říct dítěti**
 
 ## Text
 

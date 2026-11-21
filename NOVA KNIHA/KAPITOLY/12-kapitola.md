@@ -1,14 +1,22 @@
-# 12. Sebepoškozování a sebevražda
+# 12. Když dítě ubližuje samo sobě
 
-**O čem kapitola je:** Nejtěžší téma pro každého rodiče.
+**O čem kapitola je:** Řezání, myšlenky na smrt. Jak se zeptat a co udělat hned.
 
-## Co v kapitole bude
+## Témata k povídání
 
 - Proč se děti řežou
 - Sebepoškozování u malých dětí
 - Když se řežou spolužačky
 - Varovné signály sebevraždy
 - Jak dítěti vysvětlit, co je sebevražda
+
+## Jak bude kapitola plynout
+
+1. **Příběh:** začneme dítětem a rodinou, ne diagnózou.
+2. **Povídání:** co se v dítěti děje, lidsky a bez odborných slov.
+3. **Co můžete udělat doma**
+4. **Kdy je čas jít za odborníkem**
+5. **Co říct dítěti**
 
 ## Text
 

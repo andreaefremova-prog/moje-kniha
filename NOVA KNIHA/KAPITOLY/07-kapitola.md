@@ -1,11 +1,19 @@
-# 7. Pohyb, jídlo a cukr
+# 7. Tělo a duše: pohyb, jídlo, sladkosti
 
-**O čem kapitola je:** Jak tělo souvisí s psychikou.
+**O čem kapitola je:** Jak tělo souvisí s náladou.
 
-## Co v kapitole bude
+## Témata k povídání
 
 - Pohyb jako ochrana psychiky
 - Cukr a nálada
+
+## Jak bude kapitola plynout
+
+1. **Příběh:** začneme dítětem a rodinou, ne diagnózou.
+2. **Povídání:** co se v dítěti děje, lidsky a bez odborných slov.
+3. **Co můžete udělat doma**
+4. **Kdy je čas jít za odborníkem**
+5. **Co říct dítěti**
 
 ## Text
 

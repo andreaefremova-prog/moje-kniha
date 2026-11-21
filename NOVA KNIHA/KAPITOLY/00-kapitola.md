@@ -1,8 +1,8 @@
-# 0. Úvod: Proč tahle kniha
+# 0. Než začneme
 
-**O čem kapitola je:** Komu je kniha určená, jak na ni navazuje kniha O křehkosti dětské duše a jak s ní pracovat.
+**O čem kapitola je:** Proč tahle kniha vznikla a jak ji číst. Navazuje na O křehkosti dětské duše.
 
-## Co v kapitole bude
+## Témata k povídání
 
 - Pro koho kniha je
 - Psychické potíže dětí jsou běžné a nejsou ostuda

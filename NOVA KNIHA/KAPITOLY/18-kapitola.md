@@ -1,14 +1,22 @@
-# 18. Problémy s jídlem
+# 18. Když jídlo přestane být jídlem
 
-**O čem kapitola je:** Anorexie, přejídání, vztah k tělu.
+**O čem kapitola je:** Hubnutí, přejídání, vztah k vlastnímu tělu.
 
-## Co v kapitole bude
+## Témata k povídání
 
 - Vztah k tělu
 - Dědičnost a vliv mámy
 - Léčba anorexie
 - Záchvatovité přejídání
 - Holky a kluci
+
+## Jak bude kapitola plynout
+
+1. **Příběh:** začneme dítětem a rodinou, ne diagnózou.
+2. **Povídání:** co se v dítěti děje, lidsky a bez odborných slov.
+3. **Co můžete udělat doma**
+4. **Kdy je čas jít za odborníkem**
+5. **Co říct dítěti**
 
 ## Text
 

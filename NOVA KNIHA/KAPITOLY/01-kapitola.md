@@ -1,13 +1,21 @@
-# 1. Dětská duše a jak se vyvíjí
+# 1. Dětská duše: křehká, ale pružná
 
-**O čem kapitola je:** Mozek, nebo duše? Temperament, charakter a proč jsou první roky tak důležité.
+**O čem kapitola je:** Mozek, nebo duše? Proč jsou první roky tak důležité a proč má smysl přijít brzy.
 
-## Co v kapitole bude
+## Témata k povídání
 
 - Kde sídlí duše
 - Temperament a charakter
 - Nejzranitelnější období
 - Neuroplasticita: proč má smysl přijít brzy
+
+## Jak bude kapitola plynout
+
+1. **Příběh:** začneme dítětem a rodinou, ne diagnózou.
+2. **Povídání:** co se v dítěti děje, lidsky a bez odborných slov.
+3. **Co můžete udělat doma**
+4. **Kdy je čas jít za odborníkem**
+5. **Co říct dítěti**
 
 ## Text
 

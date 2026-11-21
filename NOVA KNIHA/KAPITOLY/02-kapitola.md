@@ -1,13 +1,21 @@
-# 2. Kdy je to normální a kdy už ne
+# 2. Je to ještě normální?
 
 **O čem kapitola je:** Jak poznat, že dítě jen prochází obdobím, a kdy zpozornět.
 
-## Co v kapitole bude
+## Témata k povídání
 
 - Co patří k běžnému vývoji
 - Nejčastější potíže podle věku
 - Varovné signály
 - Dnešní děti pod tlakem, covid
+
+## Jak bude kapitola plynout
+
+1. **Příběh:** začneme dítětem a rodinou, ne diagnózou.
+2. **Povídání:** co se v dítěti děje, lidsky a bez odborných slov.
+3. **Co můžete udělat doma**
+4. **Kdy je čas jít za odborníkem**
+5. **Co říct dítěti**
 
 ## Text
 

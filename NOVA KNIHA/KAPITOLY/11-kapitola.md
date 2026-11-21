@@ -1,13 +1,21 @@
-# 11. Smutek a deprese
+# 11. Když dítě ztratí radost
 
-**O čem kapitola je:** Deprese u dětí často nevypadá jako smutek.
+**O čem kapitola je:** Smutek, který nevypadá jako smutek. (Lékaři tomu říkají deprese.)
 
-## Co v kapitole bude
+## Témata k povídání
 
 - Rozdíl mezi úzkostí a depresí
 - Jak poznat depresi u puberťáka
 - Ztráta blízkého
 - Léčba: terapie a léky
+
+## Jak bude kapitola plynout
+
+1. **Příběh:** začneme dítětem a rodinou, ne diagnózou.
+2. **Povídání:** co se v dítěti děje, lidsky a bez odborných slov.
+3. **Co můžete udělat doma**
+4. **Kdy je čas jít za odborníkem**
+5. **Co říct dítěti**
 
 ## Text
 

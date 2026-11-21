@@ -1,8 +1,8 @@
-# 9. Mobily, hry, sociální sítě a umělá inteligence
+# 9. Když mobil vyhrává
 
-**O čem kapitola je:** Kolik je moc, kdy dát dítěti mobil a kdy jde o závislost.
+**O čem kapitola je:** Displeje, sítě, lajky a umělá inteligence.
 
-## Co v kapitole bude
+## Témata k povídání
 
 - Obrazovky u batolat
 - Krátká videa a pozornost
@@ -10,6 +10,14 @@
 - Kolik času denně
 - Lajky a závislost na sítích
 - Umělá inteligence
+
+## Jak bude kapitola plynout
+
+1. **Příběh:** začneme dítětem a rodinou, ne diagnózou.
+2. **Povídání:** co se v dítěti děje, lidsky a bez odborných slov.
+3. **Co můžete udělat doma**
+4. **Kdy je čas jít za odborníkem**
+5. **Co říct dítěti**
 
 ## Text
 

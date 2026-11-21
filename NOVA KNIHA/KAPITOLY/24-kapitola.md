@@ -1,11 +1,19 @@
-# 24. Trauma a těžké zážitky
+# 24. Když dítě zažije něco zlého
 
-**O čem kapitola je:** Týrání, zanedbávání, těžké zážitky.
+**O čem kapitola je:** Bití, zanedbání, těžké zážitky.
 
-## Co v kapitole bude
+## Témata k povídání
 
 - Jak poznat, že je dítě týrané
 - Trauma a „uzel“
+
+## Jak bude kapitola plynout
+
+1. **Příběh:** začneme dítětem a rodinou, ne diagnózou.
+2. **Povídání:** co se v dítěti děje, lidsky a bez odborných slov.
+3. **Co můžete udělat doma**
+4. **Kdy je čas jít za odborníkem**
+5. **Co říct dítěti**
 
 ## Text
 

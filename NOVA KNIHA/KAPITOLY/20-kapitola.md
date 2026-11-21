@@ -1,12 +1,20 @@
-# 20. Poruchy osobnosti
+# 20. Když má dítě v duši uzel
 
-**O čem kapitola je:** Hraniční porucha osobnosti a „uzel“ v duši.
+**O čem kapitola je:** Když se v osobnosti něco zadrhne. A příběh Julie.
 
-## Co v kapitole bude
+## Témata k povídání
 
 - Jak se porucha osobnosti projevuje u dětí
 - Hraniční porucha
 - Příběh Julie
+
+## Jak bude kapitola plynout
+
+1. **Příběh:** začneme dítětem a rodinou, ne diagnózou.
+2. **Povídání:** co se v dítěti děje, lidsky a bez odborných slov.
+3. **Co můžete udělat doma**
+4. **Kdy je čas jít za odborníkem**
+5. **Co říct dítěti**
 
 ## Text
 

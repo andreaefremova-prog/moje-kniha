@@ -1,14 +1,22 @@
-# 10. Strach, úzkost, fobie a panika
+# 10. Když se dítě bojí
 
-**O čem kapitola je:** Když strach dítě omezuje víc, než je běžné.
+**O čem kapitola je:** Od strašidla pod postelí po strach, který dítě svazuje. (Lékaři tomu říkají úzkost, fobie, panická ataka.)
 
-## Co v kapitole bude
+## Témata k povídání
 
 - Běžný strach vs. úzkost
 - Úzkost v těle
 - Jak poznat úzkost u malého dítěte
 - Fobie
 - Panická ataka: co dělat
+
+## Jak bude kapitola plynout
+
+1. **Příběh:** začneme dítětem a rodinou, ne diagnózou.
+2. **Povídání:** co se v dítěti děje, lidsky a bez odborných slov.
+3. **Co můžete udělat doma**
+4. **Kdy je čas jít za odborníkem**
+5. **Co říct dítěti**
 
 ## Text
 

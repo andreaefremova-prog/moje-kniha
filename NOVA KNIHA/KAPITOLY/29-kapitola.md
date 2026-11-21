@@ -1,12 +1,20 @@
-# 29. Péče o sebe jako rodiče
+# 29. A kdo se postará o vás?
 
-**O čem kapitola je:** Unavený rodič nepomůže nikomu.
+**O čem kapitola je:** Unavený rodič a pocit viny.
 
-## Co v kapitole bude
+## Témata k povídání
 
 - Pocit viny
 - Kde najít podporu
 - Kdy pomoc potřebujete i vy
+
+## Jak bude kapitola plynout
+
+1. **Příběh:** začneme dítětem a rodinou, ne diagnózou.
+2. **Povídání:** co se v dítěti děje, lidsky a bez odborných slov.
+3. **Co můžete udělat doma**
+4. **Kdy je čas jít za odborníkem**
+5. **Co říct dítěti**
 
 ## Text
 

@@ -1,12 +1,20 @@
-# 19. Pomočování a pokakávání
+# 19. Když se dítě počůrá
 
-**O čem kapitola je:** Častá a nepříjemná věc, o které se málo mluví.
+**O čem kapitola je:** Pomočování a pokakávání, o kterých se málo mluví.
 
-## Co v kapitole bude
+## Témata k povídání
 
 - Do kdy je to normální
 - Nikdy netrestat
 - Co pomáhá
+
+## Jak bude kapitola plynout
+
+1. **Příběh:** začneme dítětem a rodinou, ne diagnózou.
+2. **Povídání:** co se v dítěti děje, lidsky a bez odborných slov.
+3. **Co můžete udělat doma**
+4. **Kdy je čas jít za odborníkem**
+5. **Co říct dítěti**
 
 ## Text
 

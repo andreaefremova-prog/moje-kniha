@@ -1,12 +1,20 @@
-# 30. Kdy jednat hned: krizové situace
+# 30. Kdy nečekat ani minutu
 
-**O čem kapitola je:** Co dělat, když hoří.
+**O čem kapitola je:** Krizové situace, pohotovost a důležitá čísla.
 
-## Co v kapitole bude
+## Témata k povídání
 
 - Kdy nečekat
 - Akutní hospitalizace
 - Důležitá telefonní čísla a linky
+
+## Jak bude kapitola plynout
+
+1. **Příběh:** začneme dítětem a rodinou, ne diagnózou.
+2. **Povídání:** co se v dítěti děje, lidsky a bez odborných slov.
+3. **Co můžete udělat doma**
+4. **Kdy je čas jít za odborníkem**
+5. **Co říct dítěti**
 
 ## Text
 
