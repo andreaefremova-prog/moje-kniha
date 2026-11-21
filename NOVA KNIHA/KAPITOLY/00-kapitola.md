@@ -1,4 +1,4 @@
-# 0. Úvod: Proč jsem napsala tuhle knihu
+# 0. Úvod: Proč tahle kniha
 
 **O čem kapitola je:** Komu je kniha určená a jak ji číst.
 

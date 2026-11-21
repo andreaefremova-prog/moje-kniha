@@ -4,7 +4,7 @@ Jednoduše a lidsky o potížích dětí a o diagnózách.
 
 ## Obsah
 
-0. [Úvod: Proč jsem napsala tuhle knihu](KAPITOLY/00-kapitola.md)
+0. [Úvod: Proč tahle kniha](KAPITOLY/00-kapitola.md)
 1. [Kdy je to normální a kdy už ne](KAPITOLY/01-kapitola.md)
 2. [Za kým jít a co čekat](KAPITOLY/02-kapitola.md)
 3. [Neklidné a roztěkané dítě (ADHD)](KAPITOLY/03-kapitola.md)
