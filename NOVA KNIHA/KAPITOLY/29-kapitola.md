@@ -1,4 +1,4 @@
-# 29. A kdo se postará o vás?
+# 29. A co vy?
 
 **O čem kapitola je:** Unavený rodič a pocit viny.
 

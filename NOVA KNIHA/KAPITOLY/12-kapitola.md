@@ -1,4 +1,4 @@
-# 12. Když dítě ubližuje samo sobě
+# 12. Rány, které si dítě dělá samo
 
 **O čem kapitola je:** Řezání, myšlenky na smrt. Jak se zeptat a co udělat hned.
 

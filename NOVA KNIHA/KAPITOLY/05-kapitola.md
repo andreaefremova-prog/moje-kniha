@@ -1,4 +1,4 @@
-# 5. Když se rodina rozpadá
+# 5. Domov rozdělený na dva
 
 **O čem kapitola je:** Hádky, rozvod, dva domovy. A příběh Žanety.
 

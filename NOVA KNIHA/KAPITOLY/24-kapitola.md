@@ -1,4 +1,4 @@
-# 24. Když dítě zažije něco zlého
+# 24. Zlé zážitky
 
 **O čem kapitola je:** Bití, zanedbání, těžké zážitky.
 

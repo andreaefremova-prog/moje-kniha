@@ -1,4 +1,4 @@
-# 13. Když dítě nevydrží v klidu
+# 13. Neposeda
 
 **O čem kapitola je:** Neposedné, zapomnětlivé, pořád „v trapu“. (Lékaři tomu říkají ADHD.)
 

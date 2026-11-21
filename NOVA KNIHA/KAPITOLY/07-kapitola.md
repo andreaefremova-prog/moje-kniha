@@ -1,4 +1,4 @@
-# 7. Tělo a duše: pohyb, jídlo, sladkosti
+# 7. Tělo a duše
 
 **O čem kapitola je:** Jak tělo souvisí s náladou.
 

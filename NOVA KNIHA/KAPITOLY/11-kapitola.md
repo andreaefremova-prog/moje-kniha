@@ -1,4 +1,4 @@
-# 11. Když dítě ztratí radost
+# 11. Smutek, který není vidět
 
 **O čem kapitola je:** Smutek, který nevypadá jako smutek. (Lékaři tomu říkají deprese.)
 

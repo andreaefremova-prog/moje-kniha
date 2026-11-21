@@ -1,6 +1,6 @@
-# 17. Když dítě mrká, pokašlává a škube sebou
+# 17. Mrkání, pokašlávání, škubání
 
-**O čem kapitola je:** Tiky. Často samy odezní, ale je dobré vědět jak na ně.
+**O čem kapitola je:** Tiky. Často samy odezní, ale je dobré vědět, jak na ně.
 
 ## Témata k povídání
 

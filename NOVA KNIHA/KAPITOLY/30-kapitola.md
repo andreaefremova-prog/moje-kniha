@@ -1,4 +1,4 @@
-# 30. Kdy nečekat ani minutu
+# 30. Kdy nečekat
 
 **O čem kapitola je:** Krizové situace, pohotovost a důležitá čísla.
 

@@ -1,4 +1,4 @@
-# 28. Co se děje na terapii
+# 28. Na terapii
 
 **O čem kapitola je:** Jak terapie funguje a proč ji nenahradí žádná aplikace.
 

@@ -1,4 +1,4 @@
-# 31. Na závěr: povídejte si
+# 31. Povídejte si
 
 **O čem kapitola je:** Obyčejné povídání jako nejstarší terapie na světě.
 

@@ -1,4 +1,4 @@
-# 25. Když se učení nedaří
+# 25. Písmenka, která tančí
 
 **O čem kapitola je:** Písmenka tančí, čísla nedávají smysl. A pomalejší vývoj.
 

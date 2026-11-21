@@ -1,4 +1,4 @@
-# 18. Když jídlo přestane být jídlem
+# 18. Jídlo a tělo
 
 **O čem kapitola je:** Hubnutí, přejídání, vztah k vlastnímu tělu.
 

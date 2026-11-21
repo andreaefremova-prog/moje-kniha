@@ -1,4 +1,4 @@
-# 4. Co dítě od nás opravdu potřebuje
+# 4. Co dítě opravdu potřebuje
 
 **O čem kapitola je:** Bezpečí, vztah a hranice. Bez dokonalých rodičů.
 

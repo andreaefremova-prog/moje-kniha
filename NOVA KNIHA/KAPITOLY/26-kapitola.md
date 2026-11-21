@@ -1,6 +1,6 @@
-# 26. Když dítě něčemu propadne
+# 26. Lákadla
 
-**O čem kapitola je:** Energetické nápoje, cigarety, alkohol, drogy.
+**O čem kapitola je:** Energetické nápoje, cigarety, alkohol, drogy. A hry a sítě jako závislost.
 
 ## Témata k povídání
 

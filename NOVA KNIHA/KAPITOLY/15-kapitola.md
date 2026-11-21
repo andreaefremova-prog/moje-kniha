@@ -1,4 +1,4 @@
-# 15. Když dítě zlobí, vzteká se a pere se
+# 15. Vztek, vzdor a rány pěstí
 
 **O čem kapitola je:** Vzdor, vztek, agrese. A když je dítě šikanované, nebo samo šikanuje.
 

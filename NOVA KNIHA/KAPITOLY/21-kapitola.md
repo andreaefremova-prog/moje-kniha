@@ -1,4 +1,4 @@
-# 21. Když dítě vidí a slyší, co ostatní ne
+# 21. Hlasy, které slyší jen ono
 
 **O čem kapitola je:** Vzácné, ale vážné. (Lékaři tomu říkají psychóza.)
 

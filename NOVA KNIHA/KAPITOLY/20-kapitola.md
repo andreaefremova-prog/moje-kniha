@@ -1,4 +1,4 @@
-# 20. Když má dítě v duši uzel
+# 20. Uzel v duši
 
 **O čem kapitola je:** Když se v osobnosti něco zadrhne. A příběh Julie.
 

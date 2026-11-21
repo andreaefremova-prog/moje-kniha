@@ -1,4 +1,4 @@
-# 9. Když mobil vyhrává
+# 9. Dítě a displej
 
 **O čem kapitola je:** Displeje, sítě, lajky a umělá inteligence.
 

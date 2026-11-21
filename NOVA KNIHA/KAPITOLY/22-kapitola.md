@@ -1,4 +1,4 @@
-# 22. Když dítě řekne: Už nejsem holka
+# 22. Holka, nebo kluk?
 
 **O čem kapitola je:** Pohlaví, tělo a hledání sebe sama.
 

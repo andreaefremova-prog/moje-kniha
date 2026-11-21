@@ -1,4 +1,4 @@
-# 16. Když dítě musí věci dělat pořád dokola
+# 16. Ještě jednou si umýt ruce
 
 **O čem kapitola je:** Mytí rukou, kontrolování, počítání. (Lékaři tomu říkají OCD.)
 

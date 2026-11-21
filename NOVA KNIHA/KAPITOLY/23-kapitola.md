@@ -1,4 +1,4 @@
-# 23. Jak s dětmi mluvit o sexu
+# 23. Řeč o sexu
 
 **O čem kapitola je:** Kdy začít, co říct, a co s pornem.
 

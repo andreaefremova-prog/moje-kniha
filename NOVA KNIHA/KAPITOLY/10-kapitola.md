@@ -1,4 +1,4 @@
-# 10. Když se dítě bojí
+# 10. Strach
 
 **O čem kapitola je:** Od strašidla pod postelí po strach, který dítě svazuje. (Lékaři tomu říkají úzkost, fobie, panická ataka.)
 

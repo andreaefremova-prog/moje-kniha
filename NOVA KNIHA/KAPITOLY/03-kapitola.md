@@ -1,4 +1,4 @@
-# 3. Když se rozhodnete hledat pomoc
+# 3. Cesta za pomocí
 
 **O čem kapitola je:** Za kým jít, co vás v ordinaci čeká a proč to není ostuda.
 

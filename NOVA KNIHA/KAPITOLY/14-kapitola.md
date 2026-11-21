@@ -1,4 +1,4 @@
-# 14. Když dítě vnímá svět jinak
+# 14. Svět jinýma očima
 
 **O čem kapitola je:** Jiný kontakt, jiná řeč, potřeba stejnosti. (Lékaři tomu říkají autismus.)
 

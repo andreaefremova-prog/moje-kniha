@@ -1,4 +1,4 @@
-# 19. Když se dítě počůrá
+# 19. Mokrá postel
 
 **O čem kapitola je:** Pomočování a pokakávání, o kterých se málo mluví.
 

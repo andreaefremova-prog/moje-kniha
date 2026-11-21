@@ -5,7 +5,7 @@
 
 ## Pravidla
 - **Začínáme dítětem, ne diagnózou.** Každá kapitola otevírá příběhem: konkrétní dítě, konkrétní rodina, konkrétní situace.
-- **Název kapitoly popisuje, co rodič vidí doma**, ne jak se to jmenuje v učebnici. („Když dítě nevydrží v klidu“, ne „ADHD“.)
+- **Název kapitoly popisuje, co rodič vidí doma**, ne jak se to jmenuje v učebnici. („Neposeda“, ne „ADHD“.) Krátce, obrazně, bez „Když…“.
 - **Odborný název jen mimochodem:** „Lékaři tomu říkají…“ Jednou, a jdeme dál.
 - **Mluvíme jako v ordinaci s maminkou u stolu.** Krátké věty, obrazy a přirovnání (sklenice, která přeteče; plyn a brzda).
 - **Bez strašení a bez lamentování.** Naděje patří do každé kapitoly.

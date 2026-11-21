@@ -1,4 +1,4 @@
-# 1. Dětská duše: křehká, ale pružná
+# 1. Křehká, ale pružná duše
 
 **O čem kapitola je:** Mozek, nebo duše? Proč jsou první roky tak důležité a proč má smysl přijít brzy.
 

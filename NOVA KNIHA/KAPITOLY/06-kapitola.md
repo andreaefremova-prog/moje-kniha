@@ -1,4 +1,4 @@
-# 6. Když dítě nechce do školky nebo do školy
+# 6. Bolí mě bříško, nechci do školy
 
 **O čem kapitola je:** Bolí ho bříško, pláče u dveří, odmítá jít. Co za tím bývá.
 
